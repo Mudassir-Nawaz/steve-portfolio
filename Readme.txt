@@ -1,1 +1,1 @@
-Created with :purple_heart: by [Mudassir Nawaz](https://github.com/Mudassir-Nawaz)
+Created with :purple_heart: by Mudassir Nawaz
